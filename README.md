@@ -1,4 +1,4 @@
-# Renungan Harian Kristen Resmi
+# Renungan Harian Kristen Official
 
 Di tengah kesibukan hidup, kita semua membutuhkan firman Tuhan yang meneguhkan dan menuntun. Channel ini berisi renungan harian Kristen yang singkat, praktis, dan relevan, agar setiap hati dikuatkan dan setiap langkah diarahkan oleh kasih Kristus. Mari bertumbuh bersama dalam iman, pengharapan, dan kasih.
 
